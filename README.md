@@ -1,2 +1,2 @@
 # hannahistyping.github.io
-stuff for my webpage?
+stuff for my personal page. needs to be updated at some point.
